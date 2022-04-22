@@ -4,13 +4,13 @@
 - 💞️ I’m looking to collaborate on ... Anything!
 - 📫 How to reach me ... pkmuldoon@picobot.org
 
-****I Teleported Home One Night****
-    __From The Restaurant at the End of the Universe__
+I Teleported Home One Night / 
+    From The Restaurant at the End of the Universe /
     - Douglas Adams
 
-I teleported home one night
-With Ron and Sid and Meg.
-Ron stole Meggie's heart away
+I teleported home one night,
+with Ron and Sid and Meg.
+Ron stole Meggie's heart away,
 And I got Sidney's leg.
 
 <!---
