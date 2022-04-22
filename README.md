@@ -11,7 +11,7 @@ I Teleported Home One Night /
 I teleported home one night,
 with Ron and Sid and Meg.
 Ron stole Meggie's heart away,
-And I got Sidney's leg.
+and I got Sidney's leg.
 
 <!---
 pkmuldoon/pkmuldoon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
