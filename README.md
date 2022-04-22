@@ -4,6 +4,15 @@
 - 💞️ I’m looking to collaborate on ... Anything!
 - 📫 How to reach me ... pkmuldoon@picobot.org
 
+****I Teleported Home One Night****
+    __From The Restaurant at the End of the Universe__
+    - Douglas Adams
+
+I teleported home one night
+With Ron and Sid and Meg.
+Ron stole Meggie's heart away
+And I got Sidney's leg.
+
 <!---
 pkmuldoon/pkmuldoon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
